@@ -1,1 +1,1 @@
-justmeaurel. github. io
+justmeaurel.github.io
